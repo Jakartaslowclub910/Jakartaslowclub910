@@ -1,6 +1,1 @@
-![android (3)](https://github.com/Jakartaslowclub910/Jakartaslowclub910/assets/155374945/21415b55-8535-4fec-8707-4d208f125a06)
-![android](https://github.com/Jakartaslowclub910/Jakartaslowclub910/assets/155374945/d78e8cb8-bf62-4a5b-910b-43ce40dc8c63)
-![ayobet](https://github.com/Jakartaslowclub910/Jakartaslowclub910/assets/155374945/5ed1b284-a874-48c2-8494-9000dc3ff647)
-![bca](https://github.com/Jakartaslowclub910/Jakartaslowclub910/assets/155374945/19cfc742-c3ab-45ea-ad7a-ac029c5920e3)
-![bni](https://github.com/Jakartaslowclub910/Jakartaslowclub910/assets/155374945/dbcec404-dae6-4bc2-82b2-c2057fa4057b)
-![Bonus](https://github.com/Jakartaslowclub910/Jakartaslowclub910/assets/155374945/afb18db1-867a-452c-b84c-296160430552)
+
